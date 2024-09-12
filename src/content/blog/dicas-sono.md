@@ -45,6 +45,7 @@ Agora que você está todo preparado, você está deitado na cama e pronto para 
 
   - 🫂 **Companhia.** Ficar sozinho pode ser difícil para algumas pessoas. Tente dormir com alguém, nem que seja com um cachorro, se nenhuma outra dica te ajudou.
 
----
-- Tentar fazer outra coisa, em último caso
-- Virar para o outro lado da cama.
+## Bom sono!
+
+> 8 Em paz também me deitarei e dormirei, porque só tu, Senhor, me fazes habitar em segurança.
+> **Salmos 4:8**
